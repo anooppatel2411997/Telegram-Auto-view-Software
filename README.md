@@ -10,12 +10,27 @@ Use telegram auto view to receive a lot of telegram post views! The tools of Aut
 
 Here are the top 3 reasons that force people to try and get more views and use free telegram post views for their telegram channel.
 
+![image](https://user-images.githubusercontent.com/87627538/126097322-7bfd2772-7d7e-4b0a-9d01-8b0eeabfbea6.png)
+
 
 More views = more social proof
 They lead to your members count growing like a wildfire
 It looks great to potential advertisers
 
 That’s why you need Search Results Free Telegram Post Views !
+Price of Software -- 5000 inr (68$) Lifetime use
+
+Contact with me to get the Password of Zip file on : whatsapp = +918368381698
+
+Software Tutorial Video -- https://www.youtube.com/watch?v=LYjmNnJaoFk
+
+Visit Our Website : https://www.telegrammemberadder.com
+
+===================================================
+
+When you buy this software , then I will give you a complete tutorial videos in which it tells you how to run it in your computer and how to use it step by step.
+
+==================================================
 
 An application designed to increase the visibility of your Telegram Channels
 
